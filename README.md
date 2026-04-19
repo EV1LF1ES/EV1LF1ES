@@ -1,4 +1,8 @@
-hi im still making this
-have this for now
-<img width="736" height="871" alt="7d87300b38b51464f09f8d43de2c7efc" src="https://github.com/user-attachments/assets/a1e47e48-ed0a-4b95-a553-b4896ef5a8af" />
-\(≧⁠▽⁠≦⁠)
+
+                             *HAI HAI HAI!*
+
+                         ***__kier__** / boosfer ^_^*
+
+                           [strwpg](https://jestventy.straw.page/)
+
+<img width="880" height="400" alt="b6ae39e6f034b3c61b7baff0c001a85f" src="https://github.com/user-attachments/assets/f83a8cfe-59ad-458e-ab73-6a85e3b61411" />
